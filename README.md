@@ -5,7 +5,7 @@
 <p align="center"><a href="https://t.me/music_support_group"><img src="https://telegra.ph/file/cfacd46b60c8f8e24aa0d.jpg" width="400"></a></p>0
 
 
-> ⭐️ Thanks to everyone for using this op Taha Khan. That is the greatest pleasure we have !
+> ⭐️ Thanks to everyone for using this Aditya Spam Bots. That is the greatest pleasure we have !
 
 
 # ᴅᴇᴘʟᴏʏᴍᴇɴᴛ
